@@ -35,10 +35,74 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Mystical babylon, or Papall Rome A treatise vpon those words, Apocal. 18.2. It is fallen, it is fall
+
+1. TO THE RIGHT HONORABLE SIR HENRY MOVNTAGV, Knight, Baron of KIMBOLTON, Viſcount MAVNDEVILLE, Lord Preſident of his MAIESTIES moſt Honorable Priuie Counſaile.
+
+1. THE PREFACE OF THE AVTHOR VNTO THE CRHISTIAN READER.
+
+1. An Aduertiſement.
+
+1. THE PRINTER to the Reader.
+
 #####Body#####
 
+1. MYSTICALL BABYLON, OR PAPALL ROME. The firſt Sermon.
+
+    _ The FIRST part; concerning the Subiect, and Sinne in the Text; BABYLON.
+
+    _ The FIRST Inquiſition; What is this Babylon in my Text.
+
+    _ The FIRST Interpretation.
+
+    _ The SECOND Interpretation.
+
+    _ The THIRD Interpretation.
+
+    _ The FOVRTH Interpretation.
+
+    _ The SECOND Inquiſition; Why this name of Babylon is impoſed vpon Eccleſiaſticall, or Papall ROME.
+
+    _ The FIRST Compariſon, betwixt Literall Babylon, and Papall Rome.
+
+    _ The SECOND Compariſon betwixt Literall Babylon, and Papall Rome.
+
+    _ The THIRD Compariſon betwixt Literall Babylon, and Papall Rome.
+
+    _ The FOVRTH Compariſon betwixt Literall Babylon, and Papall Rome.
+
+    _ The FIFT Compariſon betwixt Literall Babylon, and Papall Rome.
+
+    _ Obſeruations pertaining to Faith, and Manners, framed vpon the paſſages in the two former Inquiſitions.
+
+1. THE SECOND SERMON. WHEREIN IS DISCVSSED the Second Part of this Text; Namely, the PREDICATE, expreſſing the puniſhment of ROME; It is fallen; it is fallen.
+
+    _ The FIRST point; concerning the Time, in the preterperfect tenſe; It is fallen.
+
+    _ The SECOND point, concerning the duplication of her puniſhment; It is fallen; and againe, it is fallen.
+
+    _ The THIRD point, concerning the nature, and qualitie of this ruine; what this Fall of Babylon doth heere import.
+
+    _ The FIRST Queſtion.
+
+    _ The SECOND Queſtion.
+
+    _ The THIRD Queſtion.
+
+    _ The FOVRTH Queſtion.
+
+    _ The FIRST Branch of the fourth Queſtion; concerning the POPE.
+
+    _ The SECOND Branch; concerning PAPISTS.
+
+    _ The THIRD Branch; concerning POPERY.
+
 #####Back#####
+
+1. A Correction of the Errata.
+
+    _ In the FIRST Sermon.
+
+    _ In the SECOND Sermon.
 
 **Types of content**
 
